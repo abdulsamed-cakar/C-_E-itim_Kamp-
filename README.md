@@ -1,1 +1,1 @@
-# C-_E-itim_Kamp-
+# C-_Egitim_Kampı-
